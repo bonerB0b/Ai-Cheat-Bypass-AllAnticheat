@@ -17,5 +17,14 @@ and yes i can make it not lock on 24/7 its a simple couple line script to make i
 NO PROMO
 All im trying to do is look for a company i can work for experience part time(1-2 tasks a day)
 im 17 in September 
-if anyone has anything for me comment bellow
+
+
+
+if anyone has anything for me contact me here : lonl52102@gmail.com
+
+
+
+
+
+I have learned 5 languges : lua,python,pinescript(java framwork),mq5(c++ framework) and basics of html for gui
 im building a portfolio so ill post some of my other projects from age of 15 i started coding
