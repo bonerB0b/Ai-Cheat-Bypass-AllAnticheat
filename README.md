@@ -28,3 +28,13 @@ if anyone has anything for me contact me here : lonl52102@gmail.com
 
 I have learned 5 languges : lua,python,pinescript(java framwork),mq5(c++ framework) and basics of html for gui
 im building a portfolio so ill post some of my other projects from age of 15 i started coding
+
+
+
+FOR REFRENCE I HAVENT SOLD THE SOURCE CODE / CHEAT TO ANYONE AND NOT PLANNING TO SO DONT ASK SINCE ILL JUST AIR YOU
+I DID CHEAT ON CS2 FOR ABOUT 1 MONTH AND ROBLOX FOR 1 WEEK ON MAIN ACCOUNTS
+DO I REGRET IT?NO
+DO I FEEL BAD?CERTAINLY NO LOL
+DO I STILL CHEAT?NO
+WILL I CHEAT FUTURE?MAYBE
+I CREATED IT OUT OF BOREDISM IN WINTER SINCE I CANT GO OUT WITH FRIENDS AND IM REALY PASIONATE IN CODING SO ALL OF MY TIME WHEN IM AT HOME I SPEND CODING
